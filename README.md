@@ -1,2 +1,2 @@
-# Shop-Home-comfort-
+# Shop 'Home comfort'
 Shop'Home comfort'
